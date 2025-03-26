@@ -10,6 +10,5 @@ also has to pay a charge **(1.5-3%)** to the bank. If a person fails to pay the 
 to pay your bills on time.
 
 ### How do I see this knowledge applying to my life ?
-Suppose I have to buy a product online. I find a website where it is relatively cheaper as compared to other places. However, I have never bought something from it and it doesn't look very reliable either.
-In this scenario, I would like to make the purchase using a credit card because the money would not directly be taken from my account rather the bank would be paying for it right now. So, in case there
-is any cancellation or delay in refund, my money would be safe with me.
+Credit card offer many advantages. For example, certain kinds of credit cards offer airport lounge facilities. This is very helpful for my long layovers. 
+They also give other reward points which can be used for buying vouchers of different brands.
